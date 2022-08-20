@@ -1,0 +1,6 @@
+- 👋 Im a hot man. Astrix yes tghank
+- 👀 I’m interested in  idk bruh
+- 🌱 I’m currently learning lua? 
+- 💞️ I’m looking to collaborate on  not e girls
+- 📫 How to reach me  discord : Astrix#8199
+- Dont do drugs !
